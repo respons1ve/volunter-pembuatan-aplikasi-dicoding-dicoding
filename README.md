@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Afiq Alghazali Lubis, [afiqal.gg](https://afiqal.gg).
+* respons1ve, [respons1ve.gg](https://respons1ve.gg).
